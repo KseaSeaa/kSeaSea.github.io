@@ -1,1 +1,1 @@
-# kseaSea.github.io
+# kSeaSea.github.io
